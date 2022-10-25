@@ -1,6 +1,7 @@
 ### Hi there 👋
-Telegram Link - [Telegram](https://hohland_cblp.t.me)
-Vk.com - 
+[Telegram](https://hohland_cblp.t.me)
+
+[Vk.com](https://vk.com/hohland_cblp)
 
 
 <!--
